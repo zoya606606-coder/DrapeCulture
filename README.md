@@ -15,6 +15,6 @@ https://igetausvapes.com/
 
 https://igetausvapes.com/iget-bar-pro/
 
-#iget one 12000 vapes australia
+# iget one 12000 vapes australia
 
 https://igetausvapes.com/iget-one/
